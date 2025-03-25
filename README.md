@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LunaKid10
 - 👀 I’m interested in cybersecurity
-- 🌱 I’m currently learning none
+- 🌱 I’m currently learning open university
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
